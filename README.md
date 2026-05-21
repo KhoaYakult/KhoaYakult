@@ -53,4 +53,4 @@ An enthusiastic **AI & Data Science Student** dedicated to exploring the power o
 ---
 
 ### 📫 Connect with me
-- **LinkedIn:** [linkedin.com/in/nguyễn-võ-anh-khoa-54766306](https://www.linkedin.com/in/nguy%E1%BB%85n-v%C3%B5-anh-khoa-54766306)
+- **LinkedIn:** [linkedin.com/in/nguyễn-võ-anh-khoa-584766306](https://www.linkedin.com/in/nguy%E1%BB%85n-v%C3%B5-anh-khoa-584766306)
